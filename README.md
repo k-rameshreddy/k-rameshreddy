@@ -1,5 +1,5 @@
 
-# 👋 Welcome to My GitHub Portfolio
+# 👋 Welcome to My Portfolio
 
 ## 🚀 Professional Summary
 
